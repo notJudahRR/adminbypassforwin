@@ -1,0 +1,2 @@
+# adminbypassforwin
+amogus
